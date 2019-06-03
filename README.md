@@ -1,1 +1,1 @@
-# prajjna-paramita-hrdaya
+# prajna-paramita-hrdaya
